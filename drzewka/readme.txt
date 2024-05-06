@@ -1,0 +1,1 @@
+zadanie 5 z listy 6 i zadanie 6 z listy 7
